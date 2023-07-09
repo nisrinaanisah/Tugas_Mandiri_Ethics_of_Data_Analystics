@@ -1,0 +1,1 @@
+# Tugas_Mandiri_Ethics_of_Data_Analystics
